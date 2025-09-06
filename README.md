@@ -1,1 +1,1 @@
-https://files.catbox.moe/735s7z.jpg
+![image](https://files.catbox.moe/735s7z.jpg)
